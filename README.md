@@ -1,1 +1,1 @@
-# HELLO, Study, dont go to that site again
+# Go Study,Dont try to act oversmart! smh
